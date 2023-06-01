@@ -1,3 +1,3 @@
-# Econ-M-511-SP23-MICROECONOMIC-THEORY-II
+# Econ-M-511-SP23-Microeconomic-Theory-II
 
 Course Work and Problem Sets
